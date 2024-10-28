@@ -1,0 +1,79 @@
+# 28/10/2024 – CURSO DE INGLÊS – DAY 1
+
+## VOCABULARY
+
+### ILLUSTRATED DICTIONARY
+
+- **HEAD:** CABEÇA 
+- **NECK:** PESCOÇO
+- **CHEST:** PEITO
+- **BREAST:** SEIOS
+- **NIPPLE:** MAMILO
+- **WAIST:** CINTURA
+- **ABDOMEN:** ABDOMEN
+- **NAVEL:** UMBIGO
+- **FOREARM:** ANTEBRAÇO
+- **HIP:** ANCA
+- **GENITAILS:** GENITAIS
+- **GROIN:** VIRILHA
+- **THIGH:** COXA
+- **KNEE:** JOELHO
+- **LEG:** PERNA
+- **SHIN:** CANELA
+- **FOOT:** PÉ
+
+## ENGLISH COURSE
+
+### AULA 1 - PRONOUNS
+
+- **I         ->** EU        (1rd PERSON SIGULAR)
+- **YOU       ->** VOCÊ      (2rd PERSON SIGULAR)
+- **HE|SHE|IT ->** ELE|ELA   (3rd PERSON SIGULAR)
+- **WE        ->** NÓS       (1rd PERSON PLURAL)
+- **YOU       ->** VOCÊS     (2rd PERSON PLURAL)
+- **THEY      ->** ELES|ELAS (3rd PERSON PLURAL)
+
+### VERB TO BE
+
+- **I           ->** AM
+- **YOU         ->** ARE
+- **HE|SHE|IT   ->** IS
+- **WE|YOU|THEY ->** ARE
+
+### EXAMPLES
+
+1. **QUESTION:** WHAT IS YOUR NAME?
+   **ANSWER  :** MY NAME IS ANA
+
+2. **QUESTION:** ARE YOU MARRIED?
+   **ANSWER  :** NO, I AM SINGLE
+
+3. **QUESTION:** HOW OLD ARE YOU?
+   **ANSWER  :** I'M 25 YEARS OLD
+
+4. **QUESTION:** ARE YOU A TEACCHER?
+   **ANSWER  :** NO, I AM A STUDENT
+
+## VOCABULARY COURSE
+
+- **TIRED:** CANÇADO 
+- **MARRIED:** CASADO
+- **HAPPY:** FELIZ
+- **FRIEND:** AMIGO
+- **BROTHER:** IRMÃO
+- **STUDENT:** ESTUDANTE
+- **CLASSROOM:** SALA DE AULA
+- **MOTHER:** MÃE
+- **ORANGE:** LARANJA
+- **SISTER:** IRMÃ
+
+### AULA 2 - PLURAL 
+
+- O,S,X,SH,CH = + ES
+- VOGAL + Y = + S
+- CONSOANTE + Y = -Y + IES
+- RESTANTE = + S
+- EXCETO HAVE = HAS
+
+# 29/10/2024 – CURSO DE INGLÊS – DAY 2
+
