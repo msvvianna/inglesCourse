@@ -3,43 +3,6 @@
 ### ILLUSTRATED DICTIONARY
 
 
-## AULA 3 - PREPOSIÇÃO DE LOCAL
-
-- **IN:** É usado para regiões:
-  - Bairro, Cidade, Estado, País e Continente
-
-EX:
-- I live **IN** Queens. (Bairro)
-- I live **IN** New York. (Cidade e Estados)
-- I live **IN** The United States. (País)
-
-- **ON:** É usado para referências, sem especificar.
-
-EX:
-- I live **ON** Bank Street. (Rua Bank)
-- I live **ON** Park Avenue. (Avenida do Parque)
-- I live **ON** James Square. (Praça)
-
-- **AT:** É usado para local especifico, endereço completo.
-
-EX:
-- I live **AT** 5, Bank Street. (Rua Bank número 5)
-- I live **AT** 6, Park Avenue. (Avenida do Parque número 6)
-- I live **AT** 7, James Square. (Praça James número 7)
-
-### VOCABULARY COURSE
-
-- **FRIEND:** AMIGO 
-- **TRIP:** VIAGEM
-- **STREET:** RUA
-- **AVENUE:** AVENIDA
-- **SQUARE:** PRAÇA
-- **LIVE:** MORAR
-- **SCHOOL:** ESCOLA
-- **BEAUTIFUL:** LINDO(A)
-- **GARDEN:** JARDIM
-- **TOMORROW:** AMANHÃ
-- **BEACH:** PRAIA
 
 ## FRASES EM INGLES CUMPRIMENTANDO
 
