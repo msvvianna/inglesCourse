@@ -1,9 +1,5 @@
 # 09/02/25 - Inicio do curso de Inglês
 
-### ILLUSTRATED DICTIONARY
-
-
-
 ## FRASES EM INGLES CUMPRIMENTANDO
 
 **INFORMAL**
